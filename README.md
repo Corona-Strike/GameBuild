@@ -1,3 +1,3 @@
 # Corona-Strike
        ⬇   
-https://mega.nz/file/CqwjQQxL#7wyXrQZreWAWLAdfAbnWm4zolPkWbho-oDMr1AZiZ-s
+https://mega.nz/file/7nwEXSoC#2sGnHiS15q-UCOcigpaAcaPEbeLBWxBJQC-CJiBvZqM
